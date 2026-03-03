@@ -3,7 +3,8 @@
 I’m a biologist with a Master’s degree in Animal Biology, an educator with a degree in Pedagogy, and a tenured public school teacher in the Espírito Santo State education system (Brazil), currently on official study leave to pursue a PhD.
 
 I’ve worked as:
-- Fauna Rescue Biologist / Ornithologist  
+- Fauna Rescue Biologist / Ornithologist
+- Elementary and High School Teacher
 - School Principal  
 - Administrative Advisor at a Regional Education Office  
 

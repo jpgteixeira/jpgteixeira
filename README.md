@@ -19,5 +19,6 @@ My academic path reflects a strong interest in connecting **science, education, 
 📫 **Contact:**  
 - Email: jpgt.bio@gmail.com  
 - LinkedIn: https://www.linkedin.com/in/joao-paulo-gusmao-teixeira/
-
+- Website: https://jpgteixeira.github.io/
+  
 **Fun fact:** Deeply into nature and sports — and also into PC games 😄
